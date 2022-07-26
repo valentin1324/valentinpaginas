@@ -1,2 +1,0 @@
-# valentinpagina
-es mi curriculum
